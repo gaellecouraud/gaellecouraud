@@ -1,6 +1,6 @@
 ---
 title: "Accompagnement Individuel"
-order: 1
+order: 3
 in_menu: true
 ---
 Je propose de vous accompagner dans votre évolution de façon individuelle et globale via le coaching, l’hypnose, le journal créatif et mon expérience.

@@ -1,6 +1,6 @@
 ---
 title: "Qui suis-je ?"
-order: 4
+order: 2
 in_menu: true
 ---
 Je m’appelle **Gaëlle Couraud**, je suis née à Marseille, cette ville de cœur qui m’a transmis l’amour de la diversité et d'un certain second degré.
