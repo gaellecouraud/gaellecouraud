@@ -5,7 +5,7 @@ in_menu: true
 ---
 **Qu'est-ce que le journal Créatif ?**
 
-Le journal créatif est un forme de journal personnel dans lequel on mêle l'écriture, le dessin et le collage. Pas besoin de savoir dessiner, le journal créatif est accessible à tou.te.s. Il permet de se connecter à soi-même notamment pour déposer ses émotions, pour faire le point, pour y voir plus clair, mais aussi pour débloquer et développer sa créativité. C'est en cela que c'est un outil formidable pour apprendre à mieux se connaître et créer pas à pas la vie qui nous ressemble. 
+Le journal créatif est une forme de journal personnel dans lequel on mêle l'écriture, le dessin et le collage. Pas besoin de savoir dessiner, le journal créatif est accessible à tou.te.s. Il permet de se connecter à soi-même notamment pour déposer ses émotions, pour faire le point, pour y voir plus clair, mais aussi pour débloquer et développer sa créativité. C'est en cela que c'est un outil formidable pour apprendre à mieux se connaître et créer pas à pas la vie qui nous ressemble. 
 
 
 **Ateliers de journal créatif**
