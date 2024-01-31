@@ -5,7 +5,7 @@ in_menu: true
 ---
 #### Gaëlle Couraud ∣ Accompagnement individuel et collectif
 
-  Coaching · Hypnose · Journal Créatif  
+ Coaching · Hypnose · Journal Créatif  
 
 Je propose de vous accompagner dans votre évolution, de façon individuelle et globale, via **le coaching, l'hypnose, le journal créatif** et mon expérience. 
 
