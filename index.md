@@ -11,6 +11,6 @@ Je propose de vous accompagner dans votre évolution, de façon individuelle et 
 
 Je propose également des **ateliers de journal créatif en ligne ou en présentiel** sur de nombreuses thématiques. 
 
-Je m'adresse à toute personne qui ressent **le besoin de faire évoluer sa vie**, ainsi qu'aux structures qui accompagnent les personnes dans leur évolution personnelle ou professionnelle. 
+Je m'adresse à **toute personne qui ressent le besoin de faire évoluer sa vie**, ainsi qu'aux structures qui accompagnent les personnes dans leur évolution personnelle ou professionnelle. 
 
 A bientôt 
