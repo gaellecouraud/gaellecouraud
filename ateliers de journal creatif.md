@@ -18,4 +18,4 @@ Si vous avez envie de découvrir le journal créatif, je vous invite à me faire
 
 **Pour aller plus loin**
 
-La méthode du journal créatif a été créée par Anne-Marie Jobin qui la présente dans cette vidéo en quelques minutes : 
+La méthode du journal créatif a été créée par Anne-Marie Jobin qui la présente dans cette vidéo en quelques minutes : [Le journal créatif par Anne-Marie Jobin](https://www.youtube.com/watch?v=GWyapaZ-JUk&ab_channel=JournalCr%C3%A9atif-Centredeformation) 
