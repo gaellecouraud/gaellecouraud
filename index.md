@@ -15,4 +15,4 @@ Je m'adresse à **toute personne qui ressent le besoin de faire évoluer sa vie*
 
 A bientôt 
 
-![GC le logo]({% link images/LITTLE_GC_LOGOS_RVB_LOGO_ROUGE_FOND BLEU.png %}) 
+![gc le logo]({% link images/LITTLE_GC_LOGOS_RVB_LOGO_ROUGE_FOND BLEU.jpg %}) 
