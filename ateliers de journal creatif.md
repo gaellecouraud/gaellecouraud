@@ -17,6 +17,12 @@ Je m'adresse également aux structures qui accompagnent les personnes dans leur 
 
 Si vous avez envie de découvrir le journal créatif, je vous invite à me faire part de votre souhait de participer à un atelier de découverte en ligne à cette adresse : [gaelle.couraud@gmail.com](mailto:gaelle.couraud@gmail.com)
 
+**Témoignages**
+> Ce que j’ai aimé le plus, c’est l’espace de liberté qui m’a été offert, pour développer ma créativité. Avec cette super idée de travailler autour du rêve qui m’a permis d’aller au-delà de ce que je pouvais imaginer. La seule limite étant mon imaginaire. 
+Quand je regarde les dessins qui sont sortis de mon imaginaire, je suis très agréablement surpris et étonné. C’est comme si j’étais sorti de mon corps pour porter un regard différent sur quelque chose que je connais bien. 
+Gaëlle nous emmene avec elle et nous offre la liberté dont ont a besoin dans un processus créatif
+
+
 **Pour aller plus loin**
 
 La méthode du journal créatif a été créée par Anne-Marie Jobin qui la présente dans cette vidéo en quelques minutes : [Le journal créatif par Anne-Marie Jobin](https://www.youtube.com/watch?v=GWyapaZ-JUk&ab_channel=JournalCr%C3%A9atif-Centredeformation) 
