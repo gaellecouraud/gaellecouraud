@@ -23,7 +23,7 @@ En parallèle **je co-fonde le collectif féministe Georgette Sand** : je souhai
 
 Je me forme à **l’hypnose**. Je voyage à nouveau en Mongolie à cheval, découvre le chamanisme. Je rencontre mon compagnon, nous donnons naissance à nos deux filles à la maison. Je découvre la maternité, redécouvre mes racines et l’impact du transgénérationnel. Nous construisons chaque jour notre couple, notre parentalité, notre famille. Une aventure qui nous demande introspection, inventivité, confiance et persévérance.
 
-Je découvre **le nouveau journal créatif de Anne-Marie Jobin** en 2022, c’est une nouvelle révélation pour moi. Un outil simple, accessible à tou.te.s qui aide à développer sa créativité, permet de se reconnecter à soi, à se sentir mieux tout simplement. Je suis diplômée fin 2023 et intègre immédiatement la pratique à mes accompagnements. J’organise mes premiers ateliers.
+Je découvre **le nouveau journal créatif de Anne-Marie Jobin** en 2022, c’est une nouvelle révélation pour moi. Un outil simple, accessible à tou.te.s qui aide à développer sa créativité, permet de se reconnecter à soi, de se sentir mieux tout simplement. Je suis diplômée fin 2023 et intègre immédiatement la pratique à mes accompagnements. J’organise mes premiers ateliers.
 
 J’ai été et je suis toujours moi-même accompagnée dans mon évolution par différentes actrices : psychologue, hypnothérapeute, sophro-analyste, sage-femme, infirmière, professeure de yoga, praticienne Shiatsu... des personnes aux expertises et aux histoires différentes, complémentaires, qui partagent des valeurs communes. 
 
