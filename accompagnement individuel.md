@@ -12,7 +12,7 @@ Mon approche est globale. Elle est le fruit de mon histoire, des formations que 
 #### Comment se passe un accompagnement individuel ?
 
 **La première séance** 
-Elle dure environ 1h. Au cours de cette première séance, guidé.e par mes questions, vous m'exposeras ce qui vous amène. Mon écoute sensible et active vous aidera à mettre le doigt et exprimer vos aspirations profondes. Nous définirons ensemble une stratégie, la fréquence des séances et les outils que nous utiliserons.
+Elle dure environ 1h. Au cours de cette première séance, guidé.e par mes questions, vous m'exposerez ce qui vous amène. Mon écoute sensible et active vous aidera à mettre le doigt et exprimer vos aspirations profondes. Nous définirons ensemble une stratégie, la fréquence des séances et les outils que nous utiliserons.
 
 **Les séances suivantes durent 45mn.** 
 
@@ -20,6 +20,6 @@ Nous ferons des **bilans réguliers.** Je serai également amenée à vous propo
 
 **Quelques séances peuvent suffirent à débloquer une problématique.** 
 
-**Vous êtes l'actrice/l'acteur de votre propre changement et l'expert.e de votre vie. La puissance de mon accompagnement dépend de votre implication.** 
+**Vous êtes l'actrice/l'acteur de votre propre changement et l'expert.e de votre vie. La puissance de l'accompagnement dépend de votre implication.** 
 
 Pour toute demande d'accompagnement individuel, vous pouvez me contacter à gaelle.couraud@gmail.com 
