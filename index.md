@@ -10,7 +10,7 @@ in_menu: true
 
 Je suis professionnelle de l’accompagnement par la (re-)connexion à soi et à la créativité au travers du coaching, de l’hypnose et du journal créatif. 
 
-Je propose des séances d'accompagnement individuel et global. Via ces trois méthodes complémentaires, je vous aide à dépasser vos limites, libérer votre créativité et mettre en œuvre la vie qui vous ressemble.
+Je propose des **séances d'accompagnement individuel et global**. Via ces trois méthodes complémentaires, je vous aide à dépasser vos limites, libérer votre créativité et mettre en œuvre la vie qui vous ressemble.
 
 Je propose également des **ateliers de journal créatif en ligne ou en présentiel** sur de nombreuses thématiques. 
 
