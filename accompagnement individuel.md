@@ -16,10 +16,10 @@ Elle dure environ 1h. Au cours de cette première séance, guidé.e par mes ques
 
 **Les séances suivantes durent 45mn.** 
 
-Nous ferons des **bilans réguliers.** Je serai également amenée à vous proposer des exercices (mise en mouvement, exercices de créativité...) pendant la séance mais aussi d'une séance sur l'autre. A tout moment, vous êtes libre d'accepter, de décliner ou encore de vous réapproprier les exercices que je vous propose. 
+Nous ferons des **bilans réguliers.** Je serai également amenée à vous proposer des exercices (mise en mouvement, exercices de créativité...) pendant la séance mais aussi d'une séance sur l'autre. A tout moment, **vous êtes libre** d'accepter, de décliner ou encore de vous réapproprier les exercices que je vous propose. 
 
-Quelques séances peuvent suffirent à débloquer une problématique. 
+**Quelques séances peuvent suffirent à débloquer une problématique.** 
 
-Vous êtes l'actrice/l'acteur de votre propre changement et l'expert.e de votre vie. La puissance de mon accompagnement dépend de votre implication. 
+**Vous êtes l'actrice/l'acteur de votre propre changement et l'expert.e de votre vie. La puissance de mon accompagnement dépend de votre implication.** 
 
-Pour toute demande d'accompagnement individuel, merci de me contacter à gaelle.couraud@gmail.com 
+Pour toute demande d'accompagnement individuel, vous pouvez me contacter à gaelle.couraud@gmail.com 
