@@ -7,7 +7,9 @@ in_menu: true
 
  Coaching · Hypnose · Journal Créatif  
 
-Je propose de vous accompagner dans votre évolution, de façon individuelle et globale, via **le coaching, l'hypnose, le journal créatif**. 
+Je suis une professionnelle de l’accompagnement par la (re-)connexion à soi et à sa créativité au travers du coaching, de l’hypnose et du journal créatif. 
+
+Je propose de vous accompagner dans votre évolution, de façon individuelle et globale via ces méthodes complémentaires. Je vous aide à dépasser vos limites, libérer votre créativité pour mettre en œuvre la vie qui vous ressemble.
 
 Je propose également des **ateliers de journal créatif en ligne ou en présentiel** sur de nombreuses thématiques. 
 
