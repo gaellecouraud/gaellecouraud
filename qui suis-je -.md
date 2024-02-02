@@ -3,6 +3,8 @@ title: "Qui suis-je ?"
 order: 2
 in_menu: true
 ---
+![Gaëlle]({% link images/gcocean.png %}) 
+
 Je m’appelle **Gaëlle Couraud**, je suis née à Marseille, cette ville de cœur qui m’a transmis l’amour de la diversité et d'un certain second degré.
 
 A 5 ans, je découvre ma **dyslexie**. Entourée de ma famille et au terme de beaucoup d'efforts, je m’adapte au système scolaire. Je fais des **études de lettres et me spécialise en communication**. Ma dyslexie m’a permis de développer beaucoup de persévérance, mais j’ai aussi énormément pris sur moi pendant mon parcours scolaire pour entrer dans une case qui n’était pas faite pour moi.
@@ -22,5 +24,3 @@ En parallèle **je co-fonde le collectif féministe Georgette Sand** : je souhai
 Je découvre **le nouveau journal créatif de Anne-Marie Jobin** en 2022, c’est une nouvelle révélation pour moi. Un outil simple, accessible à tou.te.s qui développe la créativité et permet de se reconnecter à soi-même, d’apprendre à se connaître, à se sentir mieux tout simplement. Je suis diplômée fin 2023 et intègre immédiatement la pratique à mes accompagnements. J’organise mes premiers ateliers.
 
 J’ai été et je suis toujours moi-même accompagnée dans mon évolution par différentes actrices : psychologue, hypnothérapeute, sophro-analyste, sage-femme, infirmière, professeure de yoga, praticienne Shiatsu... des personnes aux expertises et aux histoires différentes, complémentaires, qui partagent des valeurs communes. Je pense que nous avons tout.e.s besoin d’être accompagné.e.s à certains moments de notre vie, à différents endroits, pour passer des caps ou s'approprier de nouveaux outils. **Je serai heureuse de vous accompagner au travers du coaching, du journal créatif, de l’hypnose et de mon expérience.** 
-
-![Gaëlle]({% link images/gcocean.png %}) 
