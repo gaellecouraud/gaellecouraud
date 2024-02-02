@@ -23,4 +23,4 @@ Je découvre **le nouveau journal créatif de Anne-Marie Jobin** en 2022, c’es
 
 J’ai été et je suis toujours moi-même accompagnée dans mon évolution par différentes actrices : psychologue, hypnothérapeute, sophro-analyste, sage-femme, infirmière, professeure de yoga, praticienne Shiatsu... des personnes aux expertises et aux histoires différentes, complémentaires, qui partagent des valeurs communes. Je pense que nous avons tout.e.s besoin d’être accompagné.e.s à certains moments de notre vie, à différents endroits, pour passer des caps ou s'approprier de nouveaux outils. **Je serai heureuse de vous accompagner au travers du coaching, du journal créatif, de l’hypnose et de mon expérience.** 
 
-![]({% link images/IMG_20231014_213834_579.jpg %}) 
+![Gaëlle]({% link images/gcocean.png %}) 
