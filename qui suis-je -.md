@@ -11,7 +11,7 @@ Je pars faire mes études à Paris où j’entame ma vie professionnelle de comm
 
 Je m’engage pendant ces années là pour **le féminisme, l’écologie, pour plus d’égalité et de respect de chacun.e.** Je crois que pour créer un monde meilleur, il faut l’imaginer ensemble. Je recherche des environnements de création, de collaboration.
 
-En 2011, je ressens le besoin de me retrouver. Je décide de partir **voyager en solo à travers le monde pendant 9 mois**. Pour la première fois de ma vie, à chaque instant de ce voyage ce sont mes envies et mon intuition qui me guident. C’est le premier pas de ma transformation. Je reprends contact avec la nature, **la cavalière que je suis découvre la Mongolie**, et tout à long de ce voyage je sens confusément qu’en moi quelque chose qui s’est tu jusqu’alors demande à s’exprimer.
+En 2011, je ressens le besoin de me retrouver. Je décide de partir **voyager en solo à travers le monde pendant 9 mois**. Pour la première fois de ma vie, à chaque instant de ce voyage ce sont mes envies et mon intuition qui me guident. C’est le premier pas de ma transformation. Je reprends contact avec la nature, **la cavalière que je suis découvre la Mongolie**, et tout au long de ce voyage je sens confusément qu’en moi quelque chose qui s’est tu jusqu’alors demande à s’exprimer.
 
 ![Gaëlle]({% link images/gcocean.png %}) 
 
