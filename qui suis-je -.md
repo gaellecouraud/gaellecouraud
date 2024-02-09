@@ -17,7 +17,7 @@ En 2011, je ressens le besoin de me retrouver. Je décide de partir **voyager en
 
 De retour en France, je n’ai de cesse de trouver des moyens de toucher à ce quelque chose. 
 
-**Je co-fonde [le collectif féministe Georgette Sand**](http://georgettesand.com/) : je souhaite accompagner les femmes à retrouver confiance en elles et l’action collective reste toujours pour moi une évidence et une joyeuse réponse à la chape de plomb du patriarcat.
+[**Je co-fonde le collectif féministe Georgette Sand**](http://georgettesand.com/) : je souhaite accompagner les femmes à retrouver confiance en elles et l’action collective reste toujours pour moi une évidence et une joyeuse réponse à la chape de plomb du patriarcat.
 
 Peu de temps après, je fais la rencontre de **Lourdes Gutierrez et Marco Frediani, les co-créateurs du Playground**. Tous les deux vivent entre le Canada et la France, il y a dans leur approche et dans leur façon de transmettre quelque chose de différent, de libérateur. Tout en me formant à leur méthode non-conventionnelle de coaching, je prends mieux conscience de la dissonance entre ce qui se passe à l'intérieur de moi et ce que j'exprime à l'extérieur. J'ai du mal à être moi-même aux yeux du monde. Je redécouvre en même temps mon besoin profond d'être fidèle à moi-même et les forces qui me permettront d'y parvenir. Enfin que je comprends qu'à mon tour, je peux aider les autres à trouver leur voie. 
 
