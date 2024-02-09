@@ -5,26 +5,26 @@ in_menu: true
 ---
 Je m’appelle **Gaëlle Couraud**, je suis née à Marseille, cette ville de cœur qui m’a transmis l’amour de la diversité et d'un certain second degré.
 
-A 5 ans, je découvre ma **dyslexie**. Entourée par ma famille et au terme de beaucoup d'efforts, je m’adapte au système scolaire. Je fais des **études de lettres et me spécialise en communication**. Ma dyslexie m’a permis de développer une grande persévérance, mais j’ai aussi énormément pris sur moi pendant mon parcours scolaire pour entrer dans une case qui n’était pas faite pour moi.
+A 5 ans, je découvre ma **dyslexie**. Entourée de ma famille et au terme de beaucoup d'efforts, je m’adapte au système scolaire. Je fais des **études de lettres et me spécialise en communication**. Ma dyslexie m’a permis de développer beaucoup de persévérance, mais j’ai aussi énormément pris sur moi pendant mon parcours scolaire pour entrer dans une case qui n’était pas faite pour moi.
+
+Je pars faire mes études à Paris où j’entame ma vie professionnelle de communicante dans les secteurs de l’édition, de la grande distribution et enfin du numérique. Je deviens **directrice de la communication de Cap Digital**. À ce moment là, ce qui me passionne dans ce métier, c’est l’ébullition des idées, la collaboration de tant d’acteurs différents pour créer de nouvelles choses... et ce qui petit à petit m’éloigne de ce métier, c’est la compétition permanente intrinsèque à notre système économique, le besoin d’aller toujours plus vite vers un avenir qu’on ne prend pas le temps d’imaginer ensemble. Petit à petit j’ai la sensation de ne plus être à ma place...
+
+Je m’engage pendant ces années là pour **le féminisme, l’écologie, pour plus d’égalité et de respect de chacun.e.** Je crois que pour créer un monde meilleur, il faut l’imaginer ensemble. Je recherche des environnements de création, de collaboration.
+
+En 2011, je ressens le besoin de me retrouver. Je décide de partir **voyager en solo à travers le monde pendant 9 mois**. Pour la première fois de ma vie, à chaque instant de ce voyage ce sont mes envies et mon intuition qui me guident. C’est le premier pas de ma transformation. Je reprends contact avec la nature, **la cavalière que je suis découvre la Mongolie**, et tout à long de ce voyage je sens confusément qu’en moi quelque chose qui s’est tu jusqu’alors demande à s’exprimer.
+
+De retour en France, je n’ai de cesse de trouver des moyens de toucher à ce quelque chose. 
+
+**Je co-fonde le collectif féministe Georgette Sand** : je souhaite accompagner les femmes à retrouver confiance en elles et l’action collective reste toujours pour moi une évidence.
+
+Peu de temps après, je fais la rencontre de **Lourdes Gutierrez et Marco Frediani du Playground, les co-créateurs du Playground**. Tous les deux vivent entre le Canada et la France, il y a dans leur approche et dans leur façon de transmettre quelque chose de différent, de libérateur. Tout en me formant à leur méthode non-conventionnelle de coaching, je réalise qu'il y a une dissonance entre ce qui se passe à l'intérieur de moi et ce que j'exprime à l'extérieur. J'ai du mal à être moi-même aux yeux du monde. Je redécouvre en même temps mon besoin profond d'être fidèle à moi-même. Je découvre enfin que je peux aider les autres à trouver leur voie. De nouvelles pistes s'offrent à moi. 
+
+**En 2016, je décide de m’installer à Bordeaux pour me lancer dans l’accompagnement notamment par le coaching**. Je ralentis mon rythme de vie, je prends le temps de prendre soin de moi et de mon environnement, et je continue à explorer les différentes voies d'accès à notre vie intérieure et à notre potentiel évolutif et créatif. 
+
+Ainsi, je me forme à **l’hypnose**. Je voyage à nouveau en Mongolie à cheval, découvre le chamanisme. Je rencontre mon compagnon, nous donnons naissance à nos deux filles à la maison. Je découvre la maternité, redécouvre mes racines et l’impact du transgénérationnel. Nous construisons chaque jour notre couple, notre parentalité, notre famille. Une aventure qui demande introspection et inventivité et qui nous pousse à nous transformer chaque jour.
+
+Je découvre **le nouveau journal créatif de Anne-Marie Jobin** en 2022, c’est une révélation pour moi. Alors que l'art m'a intimement enrichie et guidée, je trouve avec le journal créatif, un outil simple et accessible à tou.te.s. Il permet de développe sa créativité, de se reconnecter à soi, d’apprendre à se connaître, à se sentir mieux tout simplement. Je suis certifée fin 2023 et intègre immédiatement la pratique à mes accompagnements. J’organise mes premiers ateliers.
+
+J’ai été et je suis toujours moi-même accompagnée dans mon évolution par différentes actrices : psychologue, hypnothérapeute, sophro-analyste, sage-femme, infirmière, coach, formatrice, professeure de yoga, praticienne Shiatsu... des personnes aux expertises et aux histoires différentes, complémentaires, qui partagent des valeurs communes. Je pense que nous avons tout.e.s besoin d’être accompagné.e.s à certains moments de notre vie, à différents endroits, pour passer des caps ou s'approprier de nouveaux outils d'introspection. **Je serai heureuse de vous accompagner à mon tour aujourd'hui.**
 
 ![Gaëlle]({% link images/gcocean.png %}) 
-
-Je pars faire mes études à Paris où j’entame ma vie professionnelle de communicante dans les secteurs de l’édition, de la grande distribution et enfin du numérique. Je deviens **directrice de la communication de Cap Digital**. A ce moment là, ce qui me passionne dans ce métier, c’est l’ébullition des idées, la collaboration de tant d’acteurs différents pour créer de nouvelles choses... et ce qui petit à petit m’éloigne de ce métier, c’est la compétition permanente intrinsèque à notre système économique, le besoin d’aller toujours plus vite vers un avenir qu’on ne prend pas le temps d’imaginer ensemble. Petit à petit, j’ai la sensation de ne plus être à ma place...
-
-Je m’engage pendant ces années là pour **le féminisme, l’écologie, pour plus d’égalité et de respect de chacun.e.** Je crois que pour créer un monde meilleur, il faut l’imaginer ensemble. Je recherche des environnements de création et de collaboration.
-
-En 2011, je ressens le besoin de me retrouver. Je décide de partir **voyager en solo à travers le monde pendant 9 mois**. Pour la première fois de ma vie, à chaque instant de ce voyage, ce sont mes envies et mon intuition qui me guident. C’est le premier pas de ma transformation. Je reprends contact avec la nature, **la cavalière que je suis découvre la Mongolie**, et tout au long de ce voyage je sens confusément qu’en moi quelque chose qui s’est tu jusqu’alors demande à s’exprimer.
-
-De retour en France, je n’ai de cesse de trouver des moyens de toucher à ce quelque chose. C’est ainsi que **je découvre le coaching avec Marco et Lourdes du Playground**, c’est une révélation.
-
-En parallèle **je co-fonde le collectif féministe Georgette Sand** : je souhaite accompagner les femmes à retrouver confiance en elles et l’action collective reste toujours pour moi une évidence.
-
-**En 2016, je décide de partir m’installer à Bordeaux pour me lancer dans l’accompagnement**. Je ralentis mon rythme de vie. Je prends le temps de prendre soin de moi. J'explore mes profondeurs. Je fais le vide pour sentir à nouveau circuler la créativité. Je touche petit à petit à ce qui s'était tu en moi. Ce n'est que le début.
-
-Je me forme à **l’hypnose**. Je voyage à nouveau en Mongolie à cheval, découvre le chamanisme. Je rencontre mon compagnon, nous donnons naissance à nos deux filles à la maison. Je découvre la maternité, redécouvre mes racines et l’impact du transgénérationnel. Nous construisons chaque jour notre couple, notre parentalité, notre famille. Une aventure qui nous demande introspection, inventivité, confiance et persévérance.
-
-Je découvre **le nouveau journal créatif de Anne-Marie Jobin** en 2022, c’est une nouvelle révélation pour moi. Un outil simple, accessible à tou.te.s qui aide à développer sa créativité, permet de se reconnecter à soi, de se sentir mieux tout simplement. Je suis certifiée fin 2023 et intègre immédiatement la pratique à mes accompagnements. J’organise mes premiers ateliers.
-
-J’ai été et je suis toujours moi-même accompagnée dans mon évolution par différentes actrices : psychologue, hypnothérapeute, sophro-analyste, sage-femme, infirmière, professeure de yoga, praticienne Shiatsu... des personnes aux expertises et aux histoires différentes, complémentaires, qui partagent des valeurs communes. 
-
-Je pense que nous avons tout.e.s besoin d’être accompagné.e.s à certains moments de notre vie, à différents endroits, pour passer des caps ou s'approprier de nouveaux outils. **Je serai heureuse de vous accompagner au travers du coaching, du journal créatif, de l’hypnose et de mon expérience.** 
