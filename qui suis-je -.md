@@ -13,6 +13,8 @@ Je m’engage pendant ces années là pour **le féminisme, l’écologie, pour 
 
 En 2011, je ressens le besoin de me retrouver. Je décide de partir **voyager en solo à travers le monde pendant 9 mois**. Pour la première fois de ma vie, à chaque instant de ce voyage ce sont mes envies et mon intuition qui me guident. C’est le premier pas de ma transformation. Je reprends contact avec la nature, **la cavalière que je suis découvre la Mongolie**, et tout à long de ce voyage je sens confusément qu’en moi quelque chose qui s’est tu jusqu’alors demande à s’exprimer.
 
+![Gaëlle]({% link images/gcocean.png %}) 
+
 De retour en France, je n’ai de cesse de trouver des moyens de toucher à ce quelque chose. 
 
 **Je co-fonde le collectif féministe Georgette Sand** : je souhaite accompagner les femmes à retrouver confiance en elles et l’action collective reste toujours pour moi une évidence.
@@ -25,6 +27,4 @@ Ainsi, je me forme à **l’hypnose**. Je voyage à nouveau en Mongolie à cheva
 
 Je découvre **le nouveau journal créatif de Anne-Marie Jobin** en 2022, c’est une révélation pour moi. Alors que l'art m'a intimement enrichie et guidée, je trouve avec le journal créatif, un outil simple et accessible à tou.te.s. Il permet de développe sa créativité, de se reconnecter à soi, d’apprendre à se connaître, à se sentir mieux tout simplement. Je suis certifée fin 2023 et intègre immédiatement la pratique à mes accompagnements. J’organise mes premiers ateliers.
 
-J’ai été et je suis toujours moi-même accompagnée dans mon évolution par différentes actrices : psychologue, hypnothérapeute, sophro-analyste, sage-femme, infirmière, coach, formatrice, professeure de yoga, praticienne Shiatsu... des personnes aux expertises et aux histoires différentes, complémentaires, qui partagent des valeurs communes. Je pense que nous avons tout.e.s besoin d’être accompagné.e.s à certains moments de notre vie, à différents endroits, pour passer des caps ou s'approprier de nouveaux outils d'introspection. **Je serai heureuse de vous accompagner à mon tour aujourd'hui.**
-
-![Gaëlle]({% link images/gcocean.png %}) 
+J’ai été et je suis toujours moi-même accompagnée dans mon évolution par différentes actrices : psychologue, hypnothérapeute, sophro-analyste, sage-femme, infirmière, coach, formatrice, professeure de yoga, praticienne Shiatsu... des personnes aux expertises et aux histoires différentes, complémentaires, qui partagent des valeurs communes. Je pense que nous avons tout.e.s besoin d’être accompagné.e.s à certains moments de notre vie, à différents endroits, pour passer des caps ou s'approprier de nouveaux outils d'introspection. **Je serai heureuse de vous accompagner à mon tour aujourd'hui.** 
