@@ -1,5 +1,5 @@
 ---
-title: "Séances individuelles"
+title: "Accompagnement individuel"
 order: 3
 in_menu: true
 ---
