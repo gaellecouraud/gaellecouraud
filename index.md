@@ -3,8 +3,8 @@ title: "Accueil"
 order: 0
 in_menu: true
 ---
-## Gaëlle Couraud
-#### Accompagnement individuel et collectif ∣  
+### Gaëlle Couraud
+#### Accompagnement individuel et collectif  
 #### Coaching · Hypnose · Journal Créatif
 
 Je suis professionnelle de l’accompagnement par la (re-)connexion à soi et à la créativité au travers du coaching, de l’hypnose et du journal créatif. 
