@@ -3,7 +3,7 @@ title: "Qui suis-je ?"
 order: 2
 in_menu: true
 ---
-Je m’appelle **Gaëlle Couraud**, je suis née à Marseille, cette ville de cœur qui m’a transmis l’amour de la diversité et d'un certain second degré.
+Je suis **Gaëlle**, je suis née à Marseille, cette ville de cœur qui m’a transmis l’amour de la diversité et d'un certain second degré.
 
 A 5 ans, je découvre ma **dyslexie**. Entourée de ma famille et au terme de beaucoup d'efforts, je m’adapte au système scolaire. Je fais des **études de lettres et me spécialise en communication**. Ma dyslexie m’a permis de développer beaucoup de persévérance, mais j’ai aussi énormément pris sur moi pendant mon parcours scolaire pour entrer dans une case qui n’était pas faite pour moi.
 
