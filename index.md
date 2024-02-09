@@ -3,8 +3,7 @@ title: "Accueil"
 order: 0
 in_menu: true
 ---
-# Gaëlle Couraud
-
+## Gaëlle Couraud
 #### Accompagnement individuel et collectif ∣  
 #### Coaching · Hypnose · Journal Créatif
 
