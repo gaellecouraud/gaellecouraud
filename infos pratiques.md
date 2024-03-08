@@ -1,5 +1,5 @@
 ---
-title: "Infos Pratiques"
+title: "Infos pratiques"
 order: 5
 in_menu: true
 ---
