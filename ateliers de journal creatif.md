@@ -25,6 +25,8 @@ Gaëlle nous emmène avec elle et nous offre la liberté dont ont a besoin dans 
 
 > Flavie : _j’ai adoré le fait de pouvoir créer, penser sans être jugée, sans avoir à montrer, en se sentant libre malgré le cadre très clair de chaque étape._
 
+> Alice : _le journal créatif est un super outil d'introspection qui a la particularité d'être accessible et réutilisable facilement dans notre quotidien. Gaëlle a animé cet atelier avec son cœur et avec beaucoup de bienveillance et de respect ! L'occasion de se reconnecter, de se relier... bref j'ai passé un super moment créatif et suspendu dans le temps !_
+
 **Pour aller plus loin**
 
 La méthode du journal créatif a été créée par Anne-Marie Jobin qui la présente dans cette vidéo en quelques minutes : [Le journal créatif par Anne-Marie Jobin](https://www.youtube.com/watch?v=GWyapaZ-JUk&ab_channel=JournalCr%C3%A9atif-Centredeformation) 
