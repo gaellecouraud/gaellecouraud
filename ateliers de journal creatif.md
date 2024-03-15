@@ -15,7 +15,7 @@ J'organise des ateliers en présentiel et en ligne sur de nombreuses thématique
 
 Je m'adresse également aux structures qui accompagnent les personnes dans leur évolution personnelle ou professionnelle. Je peux réaliser des ateliers collectifs sur mesure sur les thématiques souhaitées. 
 
-Si vous avez envie de découvrir le journal créatif, je vous invite à me faire part de votre souhait de participer à un atelier de découverte en ligne à cette adresse : [gaelle.couraud@gmail.com](mailto:gaelle.couraud@gmail.com)
+Si vous avez envie de découvrir le journal créatif, je vous invite à me faire part de votre souhait de participer à un atelier de découverte en vous inscrivant ici : [je souhaite participer gratuitement à un atelier de découverte du journal créatif](https://form.jotform.com/240452708060045).
 
 **Témoignages**
 
