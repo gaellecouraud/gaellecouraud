@@ -22,4 +22,6 @@ Nous ferons des **bilans réguliers.** Je serai également amenée à vous propo
 
 **Vous êtes l'actrice/l'acteur de votre propre changement et l'expert.e de votre vie. La puissance de l'accompagnement dépend de votre implication.** 
 
-Pour toute demande d'accompagnement individuel, vous pouvez me contacter à gaelle.couraud@gmail.com 
+#### Témoignages :
+
+> Maya : _Gaëlle m'a aidée à y voir plus clair à un moment où je traversais des turbulences. Entre ma vie pro et perso, j'avais du mal à garder l'équilibre et je me suis sentie débordée par des ressentis contradictoires et l'urgence de décisions à prendre. J'ai pu compter sur Gaëlle qui a su m'épauler dans mes réflexions. Merci pour ce bout de chemin accompli en ta compagnie !_ 
