@@ -19,13 +19,23 @@ Si vous souhaitez découvrir le journal créatif, je vous invite à me faire par
 
 **Témoignages**
 
-> Patrick : _ce que j’ai aimé le plus, c’est l’espace de liberté qui m’a été offert, pour développer ma créativité. Avec cette super idée de travailler autour du rêve qui m’a permis d’aller au-delà de ce que je pouvais imaginer. La seule limite étant mon imaginaire. 
+> Patrick : _Ce que j’ai aimé le plus, c’est l’espace de liberté qui m’a été offert, pour développer ma créativité. Avec cette super idée de travailler autour du rêve qui m’a permis d’aller au-delà de ce que je pouvais imaginer. La seule limite étant mon imaginaire. 
 Quand je regarde les dessins qui sont sortis de mon imaginaire, je suis très agréablement surpris et étonné. C’est comme si j’étais sorti de mon corps pour porter un regard différent sur quelque chose que je connais bien. 
 Gaëlle nous emmène avec elle et nous offre la liberté dont ont a besoin dans un processus créatif._
 
-> Flavie : _j’ai adoré le fait de pouvoir créer, penser sans être jugée, sans avoir à montrer, en se sentant libre malgré le cadre très clair de chaque étape._
+> Flavie : _J’ai adoré le fait de pouvoir créer, penser sans être jugée, sans avoir à montrer, en se sentant libre malgré le cadre très clair de chaque étape._
 
-> Alice : _le journal créatif est un super outil d'introspection qui a la particularité d'être accessible et réutilisable facilement dans notre quotidien. Gaëlle a animé cet atelier avec son cœur et avec beaucoup de bienveillance et de respect ! L'occasion de se reconnecter, de se relier... bref j'ai passé un super moment créatif et suspendu dans le temps !_
+> Alice : _Le journal créatif est un super outil d'introspection qui a la particularité d'être accessible et réutilisable facilement dans notre quotidien. Gaëlle a animé cet atelier avec son cœur et avec beaucoup de bienveillance et de respect ! L'occasion de se reconnecter, de se relier... bref j'ai passé un super moment créatif et suspendu dans le temps !_
+
+> Sophie : _Gaëlle met à l’aise, elle est très douce et l’accompagnement est vraiment fluide avec un bon timing et une bonne méthodo. Merci encore._
+
+> Mélissa : _J'ai passé un très bon moment qui m'a donné envie de me reconnecter à ma créativité, et d'explorer plus ce qu'il y a en moi en profondeur._
+
+> Amélie : _Une chouette petite bulle de détente avec Gaëlle pour se connecter à sa créativité. On sent que l'on est dans un espace bienveillant et c'est très agréable._
+
+> Magalie : _Très pro, doux, calme...parfait. Un joli moment à soi, une bulle dans le temps._
+
+> Séverine : _Un atelier pratique qui permet de retrouver une partie de soi de manière spontanée , légère, joyeuse avec la magie qui a la place de s'exprimer comme quand on était enfant. Un travail néanmoins profond sur lequel on peut revenir en aval._
 
 **Pour aller plus loin**
 
