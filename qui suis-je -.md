@@ -7,7 +7,6 @@ Je suis **Gaëlle**, je suis née à Marseille, cette ville de cœur qui m’a t
 
 A 4 ans, je découvre ma **dyslexie**. Entourée par ma famille et au terme de beaucoup d'efforts, je m’adapte au système scolaire. Je fais des **études de lettres et me spécialise en communication**. Ma dyslexie m’a permis de développer une grande persévérance, mais j’ai aussi énormément pris sur moi pendant mon parcours scolaire pour entrer dans une case qui n’était pas faite pour moi.
 
-![Gaëlle]({% link images/gcocean.png %}) 
 
 Je pars faire mes études à Paris où j’entame ma vie professionnelle de communicante dans les secteurs de l’édition, de la grande distribution et enfin du numérique. Je deviens **directrice de la communication de Cap Digital**. À ce moment là, ce qui me passionne dans ce métier, c’est l’ébullition des idées, la collaboration de tant d’acteurs différents pour créer de nouvelles choses... et ce qui petit à petit m’éloigne de ce métier, c’est la compétition permanente intrinsèque à notre système économique, le besoin d’aller toujours plus vite vers un avenir qu’on ne prend pas le temps d’imaginer ensemble. Petit à petit j’ai la sensation de ne plus être à ma place...
 
