@@ -16,6 +16,8 @@ Par téléphone : 06 33 54 93 90
 
 On essaie de comprendre le problème :) Ca doit être l'image
 
+Dis donc Scribouilli, allez !
+
 
 #### Mode de Paiement 
 Deux moyens de règlement sont possibles pour le moment : virement bancaire ou Lydia. 
