@@ -3,17 +3,19 @@ title: "Accueil"
 order: 0
 in_menu: true
 ---
-### Gaëlle Couraud
-#### Accompagnement individuel et animation d'ateliers de Journal Créatif
-#### Coaching · Hypnose · Journal Créatif
+Je suis Gaëlle Couraud, professionnel de l’accompagnement par la re-connexion à soi et sa créativité. 
 
-Je suis professionnelle de l’accompagnement par la (re-)connexion à soi et à la créativité au travers du coaching, de l’hypnose et du journal créatif. 
+J’utilise la Maïeusthésie, le Coaching, l’Hypnose et le Journal Créatif. 
 
-Je propose des **séances d'accompagnement individuel et global**. Via ces trois méthodes complémentaires, je vous aide à dépasser vos limites, libérer votre créativité et mettre en œuvre la vie qui vous ressemble.
+Je propose des accompagnements individuels et des ateliers de Journal Créatif.
 
-Je propose également des **ateliers de journal créatif en ligne ou en présentiel** sur de nombreuses thématiques. 
+**Les séances d’accompagnement individuel** vous permettent de cheminer en douceur, d’accueillir ce qui a besoin de l’être, d’entendre et d’apaiser les douleurs, les peurs et les tensions durablement ou encore de mieux vous connaître.
 
-Je m'adresse à **toute personne qui ressent le besoin de faire évoluer sa vie**, ainsi qu'**aux structures qui accompagnent les personnes dans leur évolution personnelle ou professionnelle.** 
+D’une durée minimum de 1h30, **Les ateliers de journal créatif** vous permettent de vous reconnecter à vous-même pour déposer vos émotions, faire le point, pour y voir plus clair. Ils permettent également de débloquer et développer votre créativité. C’est un outil formidable pour apprendre à mieux se connaître et créer pas à pas la vie qui vous ressemble.
+
+Je m’adresse à toute personne qui ressent le besoin de prendre soin d’elle-même, d’apaisement, de mieux se connaître ou de faire évoluer sa vie.
+
+Je m’adresse également aux structures qui accompagnent les personnes dans leur évolution personnelle ou professionnelle.
 
 A bientôt 
 
