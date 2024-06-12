@@ -18,5 +18,5 @@ Je m’adresse à toute personne qui ressent le besoin de prendre soin d’elle-
 Je m’adresse également aux structures qui accompagnent les personnes dans leur évolution personnelle ou professionnelle.
 
 A bientôt 
-
+test
 ![gc logo]({% link images/GC_LOGOS.png %}) 
