@@ -15,7 +15,7 @@ Les séances d’accompagnement individuel vous permettent de cheminer en douceu
 
 Les ateliers de journal créatif. D’une durée minimum de 1h30, ces ateliers vous permettent de vous reconnecter à vous-même pour déposer vos émotions, faire le point, pour y voir plus clair. Ils permettent également de débloquer et développer votre créativité. C’est un outil formidable pour apprendre à mieux se connaître et créer pas à pas la vie qui vous ressemble.
 
-Je m’adresse à toute personne qui ressent le besoin de prendre soin d’elle-même, s’apaisement, de mieux se connaître ou de faire évoluer sa vie.
+Je m’adresse à toute personne qui ressent le besoin de prendre soin d’elle-même, de mieux se connaître ou de faire évoluer sa vie.
 
 Je m’adresse également aux structures qui accompagnent les personnes dans leur évolution personnelle ou professionnelle.
 
