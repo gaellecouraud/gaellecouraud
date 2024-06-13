@@ -21,7 +21,7 @@ Ces séances sont personnalisées et demande une préparation spécifique.
 
 Ateliers de journal créatif de 1h30 : 20€
 
-Ateliers de journal créatif 3h : 30€
+Ateliers de journal créatif 3h : 35€
 
 #### Mode de Paiement 
 Deux moyens de règlement sont possibles pour le moment : virement bancaire ou Lydia. 
