@@ -37,7 +37,7 @@ Gaëlle nous emmène avec elle et nous offre la liberté dont ont a besoin dans 
 
 > Séverine : _Un atelier pratique qui permet de retrouver une partie de soi de manière spontanée , légère, joyeuse avec la magie qui a la place de s'exprimer comme quand on était enfant. Un travail néanmoins profond sur lequel on peut revenir en aval._
 
-> Aurélie :_Cet atelier était comme une petite parenthèse dans le quotidien qui m'a permis de poser mes envies ou rêves les plus profonds. Avec l'accompagnement de Gaëlle, l'atelier est dynamique et rythmé par des étapes qui nous font avancer dans une réflexion consciente ou non vers un résultat final souvent émouvant mais aussi beau par le sens et la forme._
+> Aurélia :_Cet atelier était comme une petite parenthèse dans le quotidien qui m'a permis de poser mes envies ou rêves les plus profonds. Avec l'accompagnement de Gaëlle, l'atelier est dynamique et rythmé par des étapes qui nous font avancer dans une réflexion consciente ou non vers un résultat final souvent émouvant mais aussi beau par le sens et la forme._
 
 **Pour aller plus loin**
 
