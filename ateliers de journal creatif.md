@@ -11,11 +11,15 @@ Le journal créatif est une forme de journal personnel dans lequel on mêle l’
 
 **Ateliers de journal créatif**
 
-J'organise des ateliers en présentiel et en ligne sur de nombreuses thématiques pour toute personne intéressée. 
+J'organise des ateliers en présentiel et en ligne sur de nombreuses thématiques. 
+
+Ces ateliers s'adressent à tou.te.s.
 
 Je m'adresse également aux structures qui accompagnent les personnes dans leur évolution personnelle ou professionnelle. Je peux réaliser des ateliers collectifs sur mesure sur les thématiques souhaitées. 
 
 Si vous souhaitez découvrir le journal créatif, je vous invite à me faire part de votre souhait de participer à un atelier de découverte en vous inscrivant ici : [je souhaite participer gratuitement à un atelier de découverte du journal créatif](https://form.jotform.com/240452708060045).
+
+Prochaines dates : 4 juillet de 12h30 à 14h · 26 septembre de 12h30 à 14h.
 
 **Témoignages**
 
