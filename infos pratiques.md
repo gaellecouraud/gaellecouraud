@@ -19,8 +19,10 @@ Ateliers de journal créatif de 1h30 : 20€
 
 Ateliers de journal créatif 3h : 35€
 
-#### Atelier de découverte du journal créatif de 1h30
+#### Atelier de découverte du journal créatif de 1h30 · En ligne via zoom
 [Je souhaite participer à un prochain atelier de découverte du journal créatif](https://form.jotform.com/240452708060045). La participation à un atelier de découverte est gratuite. 
+
+Prochaines dates : 4 juillet de 12h30 à 14h · 26 septembre de 12h30 à 14h.
 
 #### Mode de Paiement 
 Deux moyens de règlement sont possibles pour le moment : virement bancaire ou Lydia. 
