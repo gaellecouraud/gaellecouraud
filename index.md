@@ -3,7 +3,7 @@ title: "Accueil"
 order: 0
 in_menu: true
 ---
-Je suis Gaëlle Couraud, professionnel de l’accompagnement par la re-connexion à soi et sa créativité. 
+Je suis Gaëlle Couraud, professionnelle de l’accompagnement par la re-connexion à soi et à sa créativité. 
 
 J’utilise la Maïeusthésie, le Coaching, l’Hypnose et le Journal Créatif. 
 
