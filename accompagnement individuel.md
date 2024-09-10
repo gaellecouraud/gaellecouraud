@@ -23,7 +23,7 @@ Un accompagnement par le journal créatif dure 1h30 minimum et jusqu’à 3h sur
 
 Si vous le souhaitez il est possible d’agrémenter cet accompagnement par une séance d'hypnose pour accéder à un état de conscience modifié et par là explorer des zones de votre inconscient restées dans l'ombre. 
 
-Ces séances sont personnalisées et demande une préparation spécifique.
+Ces séances demande une préparation spécifique.
 
 Quelques séances peuvent suffirent à débloquer une problématique. Vous êtes l’actrice/l’acteur de votre propre évolution et l’expert.e de votre vie.
 
