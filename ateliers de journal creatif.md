@@ -43,6 +43,10 @@ Gaëlle nous emmène avec elle et nous offre la liberté dont ont a besoin dans 
 
 > Aurélia : _Cet atelier était comme une petite parenthèse dans le quotidien qui m'a permis de poser mes envies ou rêves les plus profonds. Avec l'accompagnement de Gaëlle, l'atelier est dynamique et rythmé par des étapes qui nous font avancer dans une réflexion consciente ou non vers un résultat final souvent émouvant mais aussi beau par le sens et la forme._
 
+> Yohan : _Un atelier sympa et chaleureux, je me suis senti bien tout de suite et j'ai eu du plaisir à être guidé. À faire et à refaire, ça peut certainement ouvrir des portes et enrichir la vision de soi un peu cloisonnée qu'on a souvent._
+
+> Hélène : _C'est un moment qui permet à la fois de jouer, de s'amuser mais aussi de plonger au fond de soi pour découvrir des idées et des émotions que tu ne savais même pas être là._
+
 **Pour aller plus loin**
 
 La méthode du journal créatif a été créée par Anne-Marie Jobin qui la présente dans cette vidéo en quelques minutes : [Le journal créatif par Anne-Marie Jobin](https://www.youtube.com/watch?v=GWyapaZ-JUk&ab_channel=JournalCr%C3%A9atif-Centredeformation) 
