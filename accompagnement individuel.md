@@ -5,7 +5,21 @@ in_menu: true
 ---
 Si vous ressentez le besoin de faire évoluer votre vie, de soulager une souffrance, un mal-être. Si vous souhaitez libérer votre créativité, apprendre à mieux vous connaître, à vous sentir aligné, je vous accompagne dans votre cheminement en douceur.
 
-Mon approche est globale. Elle est le fruit de mon histoire, des formations que j’ai suivi, des rencontres, de ma sensibilité, de mes valeurs, de mon expérience… Elle prend en compte tous les aspects de la personne : la pensée, les émotions, le corps, le passé et l’instant présent… J’utilise la maïeusthésie, le coaching, l’hypnose, le journal créatif, mon expérience et ma créativité.
+Mon approche est globale. Elle est le fruit de mon histoire, des formations que j’ai suivi, des rencontres, de ma sensibilité, de mes valeurs, de mon expérience… Elle prend en compte tous les aspects de la personne : la pensée, les émotions, le corps, le passé et l’instant présent… J’utilise la maïeusthésie*, le coaching, l’hypnose, le journal créatif, mon expérience, l'instant présent et ma créativité.
+
+#### La Maïeusthésie
+
+Étymologiquement maïeusthésie signifie "Être sensible au fait que les individus sont en gestation d’eux-mêmes"  :
+- Maieutikê (origine grecque) : "l'art d'accoucher quelqu'un"  - Aisthanesthai * (origine indo-européenne) : "la sensibilité, l'art de percevoir" (qui a donné "esthète" ainsi que "esthétique").
+
+Les symptômes étant des processus d’accouchement de soi, le praticien accompagne ce processus naturel.
+
+La Maïeusthésie c’est la capacité à écouter chez quelqu’un ce qui cherche à être entendu.  
+
+Actuellement, en cours de formation, (2 premiers modules validés sur 5) je ne propose pas de séance de Maïeusthésie a proprement parlé, mais j'intègre mes apprentissages ("état communiquant") à mes accompagnements individuels. 
+
+#### L'Hypnose
+L'hypnose est un état naturel de conscience modifié. Certifiée en Hypnose ériksonienne et en hypnose évolutive; 
 
 #### Comment se passe un accompagnement individuel ?
 
