@@ -47,6 +47,14 @@ Gaëlle nous emmène avec elle et nous offre la liberté dont ont a besoin dans 
 
 > Hélène : _C'est un moment qui permet à la fois de jouer, de s'amuser mais aussi de plonger au fond de soi pour découvrir des idées et des émotions que tu ne savais même pas être là._
 
+> Clara  : _Merci Gaëlle pour cet atelier riche.
+Ce fut un moment suspendu, comme dans un autre espace temps.
+Cela m'a permis de me reconnecter à une profondeur de mon être durant ces 1h30, mais également tout au long de la journée.
+Finalement, ce n'est pas tant l'art en lui-même le sujet, cela ne demande pas de capacité particulière de créativité, mais le fait de laisser aller ce qui vient par le biais de nos mains, qui retranscrivent ce qui se joue en nous intérieurement.
+Chaque geste me semblaient guidés, ce qui m'a vraiment agréablement surprise. Cette expérience reste intuitive et dans une fluidité, cela laisse apparaître des synchonicitées surprenantes.
+Ta douceur dans l’accompagnement et ton esprit créatif dans la conception du thème de cet atelier, ont été pour moi une porte d'entrée dans cet inconscient si mystérieux.
+Certaines clefs de compréhension ont été mises en lumière. Merci pour cette belle découverte  !_
+
 **Pour aller plus loin**
 
 La méthode du journal créatif a été créée par Anne-Marie Jobin qui la présente dans cette vidéo en quelques minutes : [Le journal créatif par Anne-Marie Jobin](https://www.youtube.com/watch?v=GWyapaZ-JUk&ab_channel=JournalCr%C3%A9atif-Centredeformation) 
