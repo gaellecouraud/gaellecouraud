@@ -12,7 +12,7 @@ Mon approche est globale. Elle est le fruit de mon histoire, des formations que 
 Étymologiquement maïeusthésie signifie "Être sensible au fait que les individus sont en gestation d’eux-mêmes"  :
 - Maieutikê (origine grecque) : "l'art d'accoucher quelqu'un"  - Aisthanesthai * (origine indo-européenne) : "la sensibilité, l'art de percevoir" (qui a donné "esthète" ainsi que "esthétique").
 
-La maïeusthésie, également appelée psychologie de la pertinence, s'appuie sur les notions de pertinence et de reconnaissance : 
+La maïeusthésie, qui oeuvre dans l'espace de la psychologie de la pertinence, s'appuie sur les notions de pertinence et de reconnaissance : 
 
 Un symptôme est le révélateur de ce qui en Soi appelle notre attention, non pour être apaisé, mais pour être reconnu. 
 
