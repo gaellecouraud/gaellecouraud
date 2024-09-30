@@ -12,14 +12,16 @@ Mon approche est globale. Elle est le fruit de mon histoire, des formations que 
 Étymologiquement maïeusthésie signifie "Être sensible au fait que les individus sont en gestation d’eux-mêmes"  :
 - Maieutikê (origine grecque) : "l'art d'accoucher quelqu'un"  - Aisthanesthai * (origine indo-européenne) : "la sensibilité, l'art de percevoir" (qui a donné "esthète" ainsi que "esthétique").
 
-Les symptômes étant des processus d’accouchement de soi, le praticien accompagne ce processus naturel.
+La maïeusthésie, également appelée psychologie de la pertinence, s'appuie sur les notions de pertinence et de reconnaissance : 
 
-La Maïeusthésie c’est la capacité à écouter chez quelqu’un ce qui cherche à être entendu.  
+Un symptôme est le révélateur de ce qui en Soi appelle notre attention, non pour être apaisé, mais pour être reconnu. 
+
+La Maïeusthésie c’est la capacité à écouter chez quelqu’un ce qui cherche à être entendu. 
 
 Actuellement, en cours de formation, (2 premiers modules validés sur 5) je ne propose pas de séance de Maïeusthésie a proprement parlé, mais j'intègre mes apprentissages ("état communiquant") à mes accompagnements individuels. 
 
 #### L'Hypnose
-L'hypnose est un état naturel de conscience modifié. Certifiée en Hypnose ériksonienne et en hypnose évolutive; 
+L'hypnose est un état naturel de conscience modifiée. Certifiée en Hypnose ériksonienne et en hypnose évolutive; 
 
 #### Comment se passe un accompagnement individuel ?
 
