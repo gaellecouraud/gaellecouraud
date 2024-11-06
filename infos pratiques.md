@@ -1,6 +1,6 @@
 ---
 title: "Infos pratiques"
-order: 6
+order: 5
 in_menu: true
 ---
 #### Pour me contacter 
