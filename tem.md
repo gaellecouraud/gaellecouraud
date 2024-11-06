@@ -17,7 +17,7 @@ Merci pour ton accompagnement si bienveillant !_
 
 
 
-**Iels ont participés à un ateliers de journal créatif**
+**Iels ont participé à un atelier de journal créatif**
 
 > Patrick : _Ce que j’ai aimé le plus, c’est l’espace de liberté qui m’a été offert, pour développer ma créativité. Avec cette super idée de travailler autour du rêve qui m’a permis d’aller au-delà de ce que je pouvais imaginer. La seule limite étant mon imaginaire. 
 Quand je regarde les dessins qui sont sortis de mon imaginaire, je suis très agréablement surpris et étonné. C’est comme si j’étais sorti de mon corps pour porter un regard différent sur quelque chose que je connais bien. 
