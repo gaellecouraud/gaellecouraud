@@ -1,5 +1,5 @@
 ---
-title: "Témoignages"
+title: "Tém."
 order: 4
 in_menu: true
 ---
