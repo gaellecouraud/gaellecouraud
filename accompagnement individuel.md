@@ -1,5 +1,5 @@
 ---
-title: "Accompa. individuel"
+title: "Accompagnement individuel"
 order: 1
 in_menu: true
 ---
