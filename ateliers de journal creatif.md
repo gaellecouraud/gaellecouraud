@@ -1,6 +1,6 @@
 ---
 title: "Ateliers de Journal Créatif"
-order: 4
+order: 3
 in_menu: true
 ---
 **Qu'est-ce que le journal Créatif ?**

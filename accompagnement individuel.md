@@ -1,6 +1,6 @@
 ---
 title: "Accompagnement individuel"
-order: 3
+order: 2
 in_menu: true
 ---
 Si vous ressentez le besoin de faire évoluer votre vie, de soulager une souffrance, un mal-être. Si vous souhaitez libérer votre créativité, apprendre à mieux vous connaître, à vous sentir aligné, je vous accompagne dans votre cheminement en douceur.
