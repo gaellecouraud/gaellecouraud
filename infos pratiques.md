@@ -20,9 +20,9 @@ Prochaine date le 10 octobre de 12h30 à 14h.
 Ateliers collectifs de journal créatif 3h : 35€
 
 #### Atelier de découverte du journal créatif de 1h30 · En ligne via zoom
-[Je souhaite participer à un prochain atelier de découverte du journal créatif](https://form.jotform.com/240452708060045). La participation à un atelier de découverte est gratuite. 
+[Je souhaite participer à un prochain atelier de découverte du journal créatif](https://form.jotform.com/240452708060045). 
 
-Prochaines dates : 26 septembre de 12h30 à 14h.
+Prochaines dates : jeudi 28 novembre de 12h30 à 14h.
 
 #### Mode de Paiement 
 Deux moyens de règlement sont possibles pour le moment : virement bancaire ou Lydia. 
