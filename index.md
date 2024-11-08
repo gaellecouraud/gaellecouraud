@@ -5,7 +5,7 @@ in_menu: true
 ---
 Je suis Gaëlle Couraud, professionnelle de l’accompagnement par la re-connexion à soi et à sa créativité. 
 
-J’utilise la Maïeusthésie, le Coaching, l’Hypnose et le Journal Créatif. Mon intention, quelle que soit la méthode utiliser est de vous accompagnez à faire émerger ce qui demande à émerger en vous. 
+J’utilise la Maïeusthésie, le Coaching, l’Hypnose et le Journal Créatif. Au travers de ces différentes approches, je vous accompagne à faire émerger ce qui est en gestation en vous. 
 
 Je propose des accompagnements individuels et des ateliers de Journal Créatif.
 
